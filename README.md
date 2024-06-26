@@ -1,1 +1,0 @@
-# Tanjore.github.io
